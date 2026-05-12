@@ -1,4 +1,4 @@
-# 
+# GIMP for PC | GIMP for Windows smart Preset: smart-objects & 3D-editing is the best GIMP for PC | GIMP for Windows preset, featuring smart-objects and 3D-editing. Powerful,
 
 
 
